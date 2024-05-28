@@ -22,5 +22,6 @@
   - `photo.jpg`: A photo from the festival.
 - `README.md`: This file, providing an overview of the project and its contents.
 
-- 우리의 멋진 선배 영욱씨에용~
+- 우리의 멋진 선배 영욱씨에용~ 영욱 씨의 슬픈 눈망울이에용~
 ![IMG_8146](https://github.com/happy-emart/24S_KAIST_festival_report_GDSC/assets/36502539/51f1d13d-4b4c-4cd2-8542-5ff42a37a1dc)
+
