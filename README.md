@@ -35,9 +35,10 @@ Team: 2조
 
 
 ### Members:
-- Nubjuk
-- Jujuk
-- Nubi
+- 장영욱
+- 유영민
+- 김연재
+- 박순준
 
 ---
 
