@@ -27,7 +27,12 @@ Team: 2조
 
 
 밥 먹고 울적해져서 내 친구 지훈이와 한 컷... 내 옆에 있어줘서 고맙다 지훈아😭
-![다운로드](https://github.com/happy-emart/24S_KAIST_festival_report_GDSC/assets/162121985/5e6170d5-af22-40e7-b706-ddc892857985)
+![IMG_8150](https://github.com/happy-emart/24S_KAIST_festival_report_GDSC/assets/162121985/797d0ea3-52e2-42c7-a593-5462a9fe6cd9)
+
+
+와인 잔으로 사진 찍으면,, 어릴 때 모습이 보인다고 한다. 나의 깜찍했던 5살이 떠오른다
+![IMG_8113](https://github.com/happy-emart/24S_KAIST_festival_report_GDSC/assets/162121985/3c94e0bd-05e3-4344-b25b-49f67a24a886)
+
 
 ### Members:
 - Nubjuk
